@@ -13,4 +13,3 @@ Você pode entrar em contato comigo 📫
 maria.vialle@escola.pr.gov.br
 
 @maluguirelli
-
